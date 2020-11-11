@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... something
 - 📫 How to reach me: ... something
 - 😄 Pronouns: ... something
-- ⚡ Fun fact: ... nothing else
+- ⚡ Fun fact: ... nothing else even
 -->
