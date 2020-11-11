@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... NEVERMORE!
 - 🌱 I’m currently learning ... NEVERMORE!!
-- 👯 I’m looking to collaborate on ... something
+- 👯 I’m looking to collaborate on ... NEVERMORE!!!
 - 🤔 I’m looking for help with ... something
 - 💬 Ask me about ... something
 - 📫 How to reach me: ... something
